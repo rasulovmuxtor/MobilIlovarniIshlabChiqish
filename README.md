@@ -1,0 +1,2 @@
+# MobilIlovarniIshlabChiqish
+Tuit Labaratory
